@@ -2,6 +2,8 @@
 
 **Eggy Car Unblocked** is an **insanely fun** and **hyper-challenging** driving game that puts your skills to the test. In this **crazy physics-based car simulator**, you must transport a fragile egg over bumpy hills and wild terrain — without dropping it! Sound easy? Think again!
 
+## <a href="https://1kb.link/MRih5n">👉 Play Eggy Car Unblocked Games NOW 👈</a>
+
 ### 🚗 What Makes Eggy Car Unblocked So Addictive?
 
 * 🎮 **Genre:** Racing, Simulator, Physics-Based, Arcade
